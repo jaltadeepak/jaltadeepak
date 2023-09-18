@@ -7,7 +7,7 @@
 </h4>
 
 ## About Me: 👨‍💻
-- ⚡ **Here to hustle** 
+- ⚡ **Here to learn** 
 - 📫 Reach me at:  **deepaksingh131102@gmail.com**
 - 📄 Check my **[RESUME](latestresume.pdf)**
 
